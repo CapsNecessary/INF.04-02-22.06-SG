@@ -1,0 +1,1 @@
+[Zadanie z zawodowych](https://edu-update.pl/zadanie-z-inf-04-02-22-06-sg/)
